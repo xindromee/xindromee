@@ -2,7 +2,7 @@
 <h1 align="center"> $${\color{#6a5acd}Azure}$$ or $${\color{hotpink}Dottie}$$ </h1>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘞𝘩𝘢𝘵 𝘩𝘢𝘷𝘦 𝘺𝘰𝘶 𝘥𝘰𝘯𝘦..?
 
- # ㅤㅤㅤㅤㅤ[新Book](https://xindromee.atabook.org/) ㅤㅤㅤㅤ [Patreon](https://www.patreon.com/xindrome/about) ㅤㅤㅤㅤ [Carrd](https://xindrome.carrd.co/)
+ # ㅤㅤㅤㅤ‎ ‎ ㅤ[新Book](https://xindromee.atabook.org/) ㅤㅤㅤㅤ [Patreon](https://www.patreon.com/xindrome/about) ㅤㅤㅤㅤ [Carrd](https://xindrome.carrd.co/)
 
  ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ![<img alt="Static Badge" src="https://img.shields.io/badge/Sacrifices-1-6a5acd">](https://komarev.com/ghpvc/?username=xindromee&color=6a5acd&label=Sacrifices&abbreviated=true)
 
