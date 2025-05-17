@@ -4,7 +4,7 @@
 
  # ㅤㅤㅤㅤ‎ ‎ ㅤ[新Book](https://xindromee.atabook.org/) ㅤㅤㅤㅤ [Patreon](https://www.patreon.com/xindrome/about) ㅤㅤㅤㅤ [Carrd](https://xindrome.carrd.co/)
 
- ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ![<img alt="Static Badge" src="https://img.shields.io/badge/Sacrifices-1-6a5acd">](https://komarev.com/ghpvc/?username=xindromee&color=6a5acd&label=Sacrifices&abbreviated=true)
+ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ![<img alt="Static Badge" src="https://img.shields.io/badge/Sacrifices-1-6a5acd">](https://komarev.com/ghpvc/?username=xindromee&color=6a5acd&label=Sacrifices&abbreviated=true)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*They/Any pronounsㅤㅤㅤAwkward person final bossㅤㅤㅤMainly off-tab or semi-afk*
 
