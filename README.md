@@ -1,5 +1,5 @@
 ![Banner by @ram1ficati0ns on tumblr](https://64.media.tumblr.com/6dff46220886061b38ca4566e3db971b/03b07e8db0bb9e75-06/s2048x3072/fb75bed33236954359de0f68851c4d973fd9a119.pnj)
-<h1 align="center"> $${\color{#6a5acd}Azure}$$ or $${\color{hotpink}Dottie}$$ </h1>
+<h1 align="center"> Azure or Dottie </h1>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘞𝘩𝘢𝘵 𝘩𝘢𝘷𝘦 𝘺𝘰𝘶 𝘥𝘰𝘯𝘦..?
 
  # ㅤㅤㅤㅤ‎ ‎ ㅤ[新Book](https://xindromee.atabook.org/) ㅤㅤㅤㅤ [Patreon](https://www.patreon.com/xindrome/about) ㅤㅤㅤㅤ [Carrd](https://xindrome.carrd.co/)
