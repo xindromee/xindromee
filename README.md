@@ -1,12 +1,12 @@
 ![Banner by @ram1ficati0ns on tumblr](https://64.media.tumblr.com/6dff46220886061b38ca4566e3db971b/03b07e8db0bb9e75-06/s2048x3072/fb75bed33236954359de0f68851c4d973fd9a119.pnj)
-<h1 align="center"> Azure or Dottie </h1>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘞𝘩𝘢𝘵 𝘩𝘢𝘷𝘦 𝘺𝘰𝘶 𝘥𝘰𝘯𝘦..?
+<h1 align="center"> Dottie </h1>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤYou've met a terrible fate, haven't you?
 
- # ㅤㅤㅤㅤ‎ ‎ ㅤ[新Book](https://xindromee.atabook.org/) ㅤㅤㅤㅤ [Patreon](https://www.patreon.com/xindrome/about) ㅤㅤㅤㅤ [Carrd](https://xindrome.carrd.co/)
+ # ㅤㅤㅤㅤㅤ‎ ‎ ㅤ[新Book](https://xindromee.atabook.org/) ㅤㅤㅤㅤ [Discord](https://discord.com/users/621265422003732480) ㅤㅤㅤㅤ [Carrd](https://xindrome.carrd.co/)
 
- ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ![<img alt="Static Badge" src="https://img.shields.io/badge/Sacrifices-1-6a5acd">](https://komarev.com/ghpvc/?username=xindromee&color=6a5acd&label=Sacrifices&abbreviated=true)
+ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ ㅤ![<img alt="Static Badge" src="https://img.shields.io/badge/Sacrifices-1-6a5acd">](https://komarev.com/ghpvc/?username=xindromee&color=6a5acd&label=Sacrifices&abbreviated=true)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*They/Any pronounsㅤㅤㅤAwkward person final bossㅤㅤㅤMainly off-tab or semi-afk*
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*They/Any pronounsㅤㅤㅤChudㅤㅤㅤMainly off-tab or semi-afk*
 
 ![Divider by @kodaswrld on tumblr](https://64.media.tumblr.com/3fccfe78f117bd3003dd6d8f636579b3/61ee3e7589f11682-27/s2048x3072/08757d4e4538270f052c5262dcd089a7efe90a1b.pnj)
 
